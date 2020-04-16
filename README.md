@@ -1,0 +1,2 @@
+# About-the-risks-of-surfing-the-net
+Anonymster was established in 2016 by two companions enthusiastic about Internet protection and security. The thought behind the venture was to advance mindfulness about the risks of surfing the net and give functional answers for ensure individual information and protection. It was the organizers' anxiety to clarify Internet protection and security in straightforward term, making the data available even to unpracticed clients.
